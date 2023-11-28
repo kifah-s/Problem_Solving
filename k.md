@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 9 -> pro 6
+Gammal Teck -> C -> Les 9 -> problem solving
