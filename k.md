@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 12
+Gammal Teck -> C -> Les 12 -> PS
