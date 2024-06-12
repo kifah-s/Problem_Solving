@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 26
+Gammal Teck -> C -> Les 30
