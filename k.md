@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 70
+Gammal Teck -> C++ -> Les 1
