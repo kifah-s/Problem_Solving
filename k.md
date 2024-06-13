@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 58
+Gammal Teck -> C -> Les 70
