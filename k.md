@@ -1,1 +1,1 @@
-Gammal Teck -> C++ -> les: 1
+Gammal Teck -> C++ -> 
