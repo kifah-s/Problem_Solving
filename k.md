@@ -1,1 +1,1 @@
-Gammal Teck -> C++ -> Les: 32
+Gammal Teck -> C++ -> Les: 48
