@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 1 -> Exe 2 -> Pro 6
+Gammal Teck -> C -> Les 1 -> Exe 2 -> PS
