@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 61 -> Exe 2
+Gammal Teck -> C -> Les 1 -> PS 2
