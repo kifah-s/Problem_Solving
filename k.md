@@ -1,1 +1,1 @@
-Gammal Teck -> C -> Les 1 -> PS 2
+Gammal Teck -> 
